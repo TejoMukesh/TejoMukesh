@@ -1,1 +1,3 @@
-Just a trial file, don't take it too seriously.
+Yo.
+
+Not a serious guy. Just trying my hand at this stuff.
