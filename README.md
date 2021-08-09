@@ -1,6 +1,6 @@
  ### 
 
-<div align="center"
+<p align="center"
      
      <b>I'm wasting away but check out my jam here:</b>
   
