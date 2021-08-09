@@ -1,5 +1,4 @@
-In the words of Charlie Harper: 
-> Don't be letting your mouth write checks your ass can't cash.
+In the words of Charlie Harper: > Don't be letting your mouth write checks your ass can't cash.
 
 Now vibing to:
 
