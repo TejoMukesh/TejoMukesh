@@ -1,3 +1,2 @@
-Yo.
-
-Not a serious guy. Just trying my hand at this stuff.
+wasting away 
+[![Spotify](https://spotify-readme.sp-xd.vercel.app/api/spotify)](https://open.spotify.com/user/somnathpaul) <br>
